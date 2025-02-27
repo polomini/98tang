@@ -2,11 +2,8 @@
 ### <font color="red">有問題提ISSUES，一般會回復。</font>
 
 
-## 作者搭建好的（更新时间2024年11月，需要梯子且全局模式）
+## 作者搭建好的（更新时间2025年3月，需要梯子且全局模式）
 http://www.superupup.top
-
-## 人工找片，人工女优识别
-https://avhelper.com
 
 **开发不易，给个star、fork是我维护的动力！！**
 
